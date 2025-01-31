@@ -21,7 +21,7 @@
 
 ### 下载地址
 
-https://og-image.update.lxfater.com/og-image-buddy-1.0.2.dmg
+https://og-image.update.lxfater.com/og-image-buddy-1.0.3.dmg
 
 ### 激活码
 
