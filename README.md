@@ -21,11 +21,14 @@
 
 ### 下载地址
 
-https://og-image.update.lxfater.com/og-image-buddy-1.0.0.dmg
+https://og-image.update.lxfater.com/og-image-buddy-1.0.1.dmg
 
 ### 激活码
 
-A47212-EA78B2-996A49-44C9C5-BCFE60-V3
+小红书搜索: 9471098014, 关注并私信获取激活码
+X: 铁锤人，私信获取
+
+可供30人使用
 
 ## 🤝 贡献指南
 
